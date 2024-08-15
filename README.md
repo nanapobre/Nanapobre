@@ -1,1 +1,1 @@
-## Hi my name is Halanna, não estudo só durmo :)
+## Hi my name is Halanna, não estudo, só jogo ludo :)
