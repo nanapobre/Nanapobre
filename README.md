@@ -1,1 +1,1 @@
-## Hi there meu nome Carlos Gabriel e estou estudando
+## Hi my name is Halanna, não estudo só durmo :)
